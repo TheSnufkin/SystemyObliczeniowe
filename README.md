@@ -1,0 +1,2 @@
+# SystemyObliczeniowe
+# SystemyObliczeniowe
